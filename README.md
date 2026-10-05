@@ -45,7 +45,7 @@ I started with an **M.Sc. in Chemistry** (Goa University, 2018) and worked as a 
 
 ## 📫 Let's connect
 
-- 💼 LinkedIn: [your-linkedin-url](#)
+- 💼 LinkedIn: https://www.linkedin.com/in/darshanaik
 - ✉️ Email: darshanaik08@gmail.com
 - 📍 Bengaluru, Karnataka, India
 
